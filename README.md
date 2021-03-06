@@ -1,1 +1,0 @@
-# shitos-xyz.github.io
